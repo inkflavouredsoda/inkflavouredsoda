@@ -1,1 +1,2 @@
-<img src="https://64.media.tumblr.com/50ae3a4b40fe7936f81a46405d58928c/72766623940b749b-61/s100x200/a7c2104fa935acbfaee7d97aeabe012e990d9b7c.gifv" alt="chaostamp" width="150" height="150"> <img src="https://64.media.tumblr.com/73db374a735a7e2eeb33491459c01f56/a663755b92cf7a61-2d/s100x200/4835678269692d7ae31396624d2a2d408f54a046.pnj" alt="chaostamp" width="150" height="150"> <img src="https://64.media.tumblr.com/18a4d00d80eb8624c5daec61db8ab511/98cbc5b0decebdf1-08/s100x200/bba394707526b480dafa3a1bdeba466d7a3ab7ce.pnj" alt="chaostamp" width="150" height="150"> 
+  <img width="1000" height="500" alt="Screenshot 2026-01-21 1 08 21 PM" src="https://github.com/user-attachments/assets/b48af6e2-37fe-4be9-a921-8e232780459d" />
+
