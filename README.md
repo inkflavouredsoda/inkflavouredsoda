@@ -1,1 +1,1 @@
-<img width="800" height="590" alt="blehh" src="https://s5.ezgif.com/tmp/ezgif-5461e1490ece73e1.gif" />
+<img width="400" height="500" alt="Untitled5_20260122221816" src="https://64.media.tumblr.com/e95f85bedf693ab31409252a76e31d75/44e699638b6a68ec-6e/s640x960/bd61e9e461ccbc1c0e97fd3d89dfaa7497ea524e.webp" /> <img width="400" height="450" alt="Untitled5_20260122221816" src="https://64.media.tumblr.com/e1be907522b8874115fa13b25c04d95d/44e699638b6a68ec-40/s640x960/74a8eea4654ea7ba1bbce90319dce40214dd6af1.webp" />
