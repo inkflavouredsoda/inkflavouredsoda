@@ -1,1 +1,2 @@
-![silver-silver-the-hedgehog](https://github.com/user-attachments/assets/d90e0b54-8f03-4369-a92b-261599d9a988)
+<img width="600" height="750" alt="Screenshot 2026-01-21 232942" src="https://media1.tenor.com/m/_rhJ5xSlcjQAAAAC/silver-de-val-silver-de-valen.gif" />
+
