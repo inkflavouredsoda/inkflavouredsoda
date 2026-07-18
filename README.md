@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=inkflavouredsoda&color=000698&label=˚⟡˖ )
 <p align="center">
-<img width="350" height="350" alt="image" src="https://github.com/user-attachments/assets/0008b9f5-4052-4be1-9024-5a0e8691fea8" />
+<img width="450" height="250" alt="HI3bPVLbAAABBJn" src="https://github.com/user-attachments/assets/8c63afc4-0409-4464-8391-7c1ba7fc68e4" />
 
 <p align="center">
 
