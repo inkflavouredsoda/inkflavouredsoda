@@ -1,6 +1,7 @@
-![](https://komarev.com/ghpvc/?username=inkflavouredsoda&color=301f1f&label=˚⟡˖ )
+![](https://komarev.com/ghpvc/?username=inkflavouredsoda&color=2b2b2b&label=˚⟡˖ )
 <p align="center">
- 
+<img width="800" height="450" alt="ezgif-512142de16e8c0b5 (1)" src="https://github.com/user-attachments/assets/c3e381f4-1fec-4912-822c-ee71fcdf06f6" />
+
 <p align="center">
 
 <p align="center">
